@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @maryam300422
+- 👀 I’m interested in a lot of Things ...
+- 🌱 I’m currently learning python
+- 📫 How to reach me: Instagram: elidrissi8254
+-                     WhatsApp: +4915750187478
+- ⚡ Fun fact: I'm seriosly searching a pythonteacher to teach an under 18 girl
+--->
